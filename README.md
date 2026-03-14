@@ -1,2 +1,6 @@
-# Messi-ser-el-impostor-
-Carolain gómez Isabella Nava
+# Messi-sera-el-impostor-
+Carolain Gómez 
+ID 001135356 
+Isabella Nava
+
+
