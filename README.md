@@ -1,6 +1,5 @@
 # Messi-sera-el-impostor-
-Carolain Gómez 
-ID 001135356 
+Carolain Gómez  
 Isabella Nava
 
 
